@@ -46,4 +46,4 @@
 	
 24 - 	
 	
-25 - 	
+25 - 	https://chat.whatsapp.com/EH72YYPpfe06Wrp9ppafSJ
