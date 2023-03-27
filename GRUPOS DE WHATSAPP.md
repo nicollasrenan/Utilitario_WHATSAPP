@@ -1,7 +1,5 @@
 1 - 	https://chat.whatsapp.com/KYUUCQkbHuXFBSdi7OGz1E
-	
 2 - 	https://chat.whatsapp.com/JuyR4znEMGe14x89bX3xl8
-	
 3 - 	https://chat.whatsapp.com/E7iDYuyBkMl15DrKdlnXm6
 	
 4 - 	https://chat.whatsapp.com/LIDek3WbnB7HBM8ZuyEgFq
