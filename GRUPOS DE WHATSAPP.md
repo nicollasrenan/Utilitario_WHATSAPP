@@ -12,7 +12,7 @@
 	
 7 - 	https://chat.whatsapp.com/Ck0RX4N1Hk47pK9sUsijyG
 	
-8 - 	https://chat.whatsapp.com/Jdom9sh2asBAQUqBQyshWs
+8 - 	https://chat.whatsapp.com/BdwGUUKSQHd2fZqeY8oevb
 	
 9 - 	https://chat.whatsapp.com/C8NjAiBAWXf8wOr7KxF7rB
 	
@@ -32,13 +32,13 @@
 	
 17 - 	https://chat.whatsapp.com/BlfdjS11q458ktBvAPVQHv
 	
-18 - 	https://chat.whatsapp.com/JGPaAQTFmNo5HTH4PpGJII
+18 - 	https://chat.whatsapp.com/DnyWanNXJ6K06CN9EtawMu
 	
 19 - 	https://chat.whatsapp.com/DHuEHxp1qroHxW6BZcR156
 	
-20 - 	https://chat.whatsapp.com/DnyWanNXJ6K06CN9EtawMu
+20 - 	
 	
-21 - 	https://chat.whatsapp.com/BdwGUUKSQHd2fZqeY8oevb
+21 - 	
 	
 22 - 	
 	
